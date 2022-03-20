@@ -12,5 +12,7 @@ https://dotnet.microsoft.com/en-us/download/dotnet-framework/net48
 You can contact us for your requests, suggestions and ideas.
 
 www.huseyinkayaweb.com
+
 www.instagram.com/hsynkaya._
+
 DC: AρRα#2428
