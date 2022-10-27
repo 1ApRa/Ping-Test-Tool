@@ -13,6 +13,6 @@ You can contact us for your requests, suggestions and ideas.
 
 www.huseyinkayaweb.com
 
-instagram.com/hsynkaya._
+instagram.com/huseyin.kayaw
 
 DC: AρRα#2428
